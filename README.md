@@ -52,3 +52,5 @@ If you are interested, please send me your LinkedIn profile and resume.
 Contact address(telegram): htps://t.me/marvelous_star
 
 Thank you for reading.
+
+(This repository and this account is just for finding the collaborator)
